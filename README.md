@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @aidenmurph
-- 👀 I’m interested in the environment, illustration and tattoos, a
+- 👀 I’m interested in the environment, illustration and cybersecurity
 - 🌱 I’m currently learning computer engineering
 - 💞️ I’m looking to collaborate on projects that would make meuseful in the envionmental field
 - 📫 How to reach me: email is aidenjmurph@gmail.com
